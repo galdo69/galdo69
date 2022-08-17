@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @galdo69
 - 👀 I’m interested in  dinheiro
 - 🌱 I’m currently learning  nada
-- 💞️ I’m looking to collaborate on  em nada
+- 💞️ I’m looking to collaborate   em nada
 - 📫 How to reach me andando
 
 <!---
